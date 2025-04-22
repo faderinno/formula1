@@ -1,1 +1,0 @@
-Tässä on sitten lopullinen verkkosivu, jonka teemana on Formula1. Meni aika paljon aikaa, mutta oli ihan hauskaa!
